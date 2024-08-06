@@ -1,5 +1,5 @@
 # 💫 About Me:
-🧑‍💻 Data is love ❤️<br>🌍 Midguardian<br>🎓 BE Computer Science & Engineering ( AIML )<br>🥶 'Just One More Episode' <br>🌱 Currently Exploring AI and Machine Learning<br>🤝 Observer , Stalker, Always find amusement in the most unexpected things
+🧑‍💻 Data is love ❤️<br>🌍 Midguardian<br>🎓 Bacherlor of Computer Science & Engineering ( AIML )<br>🥶 'Just One More Episode' <br>🌱 Currently Exploring AI and Machine Learning<br>🤝 Observer , Stalker, Always find amusement in the most unexpected things
 
 
 ## 🌐 Socials:
